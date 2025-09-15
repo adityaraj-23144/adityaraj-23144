@@ -1,9 +1,7 @@
 <h1 align="center">Hi 👋, I'm Aditya Raj</h1>
 <h3 align="center">A passionate Data Scientist with a passion for AI/ML from India</h3>
 
-<p align="left"> <img src="https://komarev.com/ghpvc/?username=adityaraj-23144&label=Profile%20views&color=0e75b6&style=flat" alt="adityaraj-23144" /> </p>
-
-- I'm currently a final year **ECE student at IIIT Trichy**
+- I'm currently in my final year pursuing **B.Tech in ECE From IIIT Trichy**
 
 - 🌱 I’m currently learning **Artificial Intelligence**
 
