@@ -9,7 +9,7 @@
 
 - 💬 Ask me about **Tech , Anime , Sports , Movies , Games**
 
-- 📫 How to reach me **adityaraj23144@gmail.com**
+- 📫 How to reach me **adiwork23144@gmail.com**
 
 - 📄 Know about my experiences [https://drive.google.com/file/d/1dihcca6qiEiA7HpjdREDEG2awAYZzvJC/view?usp=sharing](https://drive.google.com/file/d/1dihcca6qiEiA7HpjdREDEG2awAYZzvJC/view?usp=sharing)
 
