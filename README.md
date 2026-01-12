@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **adiwork23144@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1dihcca6qiEiA7HpjdREDEG2awAYZzvJC/view?usp=sharing](https://drive.google.com/file/d/1dihcca6qiEiA7HpjdREDEG2awAYZzvJC/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1dihcca6qiEiA7HpjdREDEG2awAYZzvJC/view?usp=sharing](https://drive.google.com/drive/u/0/folders/1OJqRsQQ1pvIOdfr3rlf7SLtOODRMwX5w)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
